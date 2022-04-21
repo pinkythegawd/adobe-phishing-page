@@ -1,3 +1,4 @@
+![579c4473ce9ece36454c2800c9bc9340](https://user-images.githubusercontent.com/76861567/164463350-59ca961b-fc1c-476e-b3e1-95d1856a6c77.png)
 <p align='center'>
   <b>🎨 Follow me here 🎨</b><br>  
   <a href="https://discord.gg/Hm5HbKykyK">Discord</a> |
@@ -7,7 +8,7 @@
 </p>
 
 ##   
-![579c4473ce9ece36454c2800c9bc9340](https://user-images.githubusercontent.com/76861567/164463350-59ca961b-fc1c-476e-b3e1-95d1856a6c77.png)
+
 ### 🧰 Support
 - Email: <eeveecutie2@gmail.com>
 - Discord: https://discord.gg/Hm5HbKykyK
